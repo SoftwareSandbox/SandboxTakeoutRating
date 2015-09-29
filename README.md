@@ -26,3 +26,12 @@ Al een aantal keren hier besteld, en hoewel het eten zelf zeer lekker is, wordt 
 Prijs: €14
 
 Rating: 6.5/10
+
+## Pizza
+### Dominoes
+
+"Gelijk PizzaHut ma dan goedkoper en met lekkere side-dishes"
+
+Prijs: €33 voor combo-deals
+
+Rating: 7/10
