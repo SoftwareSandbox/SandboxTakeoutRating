@@ -3,18 +3,43 @@ Sandbox Takeout Rating
 
 ## Indian
 ### New Holy Cow
-Chicken Tikka Masala, geen groentjes, lekkere saus, te duur voor wat het is.
+#### Chicken Tikka Masala
+Geen groentjes, lekkere saus, te duur voor wat het is.
 
 Prijs: €14
 
 Rating: 6.5/10
 
+Suggestie: eventueel meer Naan bestellen
+
 ### Buddha House
-Chicken Tikka Masala, geen groentjes, saus was ok, maar zeer vettig en dun.
+#### Chicken Tikka Masala
+Geen groentjes, saus was ok, maar zeer vettig en dun.
 
 Prijs: €12.5
 
 Rating: 5/10
+
+Suggestie: eventueel meer Naan bestellen
+
+### Everest
+#### Chicken Tikka Masala
+Geen groentjes, saus was goed (dik en niet te vettig) en lichtjes pikant (volgens onze normen).
+
+Prijs: €13
+
+Rating: 7/10
+
+Suggestie: eventueel meer Naan bestellen
+
+#### Lam Vindaloo
+Geen groentjes, saus was goed (dik en klein beetje vettig) en pretty spicy.
+
+Prijs: €13,50
+
+Rating: 7/10
+
+Suggestie: eventueel meer Naan bestellen
 
 ## Lebanese
 ### Beirut
