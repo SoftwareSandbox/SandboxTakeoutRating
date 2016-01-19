@@ -63,8 +63,16 @@ Rating: 7/10
 
 ### Pizza Espressa
 
-Levertijd: Geadverteerd 40', gemeld na bestelling 60', in het echt ?'
+Levertijd: Geadverteerd 40', gemeld na bestelling 60', in het echt 60'.
+
+*-* Geen feta geproefd in de Calzone Capri. Zou niet meer opnieuw bij Pizza Espressa bestellen.
+
+*-* Is ok, maar de Santa Maria is een beetje droog. Zou waarschijnlijk niet meer opnieuw deze pizza bestellen.
+
+*-* Is idd ok, en is idd een beetje droog, maar deeg is te dik. Kippenstukjes zijn wel goed. Zou waarschijnlijk niet opnieuw bestellen.
+
+*-* Ik denk dat mijn vierde kaassoort karton is. Zou niet opnieuw bij Pizza Espressa bestellen.
 
 Prijs: €8 de pizza (average)
 
-Rating: ?/10
+Rating: 5/10
