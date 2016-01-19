@@ -69,7 +69,7 @@ Levertijd: Geadverteerd 40', gemeld na bestelling 60', in het echt 60'.
 
 *-* Is ok, maar de Santa Maria is een beetje droog. Zou waarschijnlijk niet meer opnieuw deze pizza bestellen.
 
-*-* Is idd ok, en is idd een beetje droog, maar deeg is te dik. Kippenstukjes zijn wel goed. Zou waarschijnlijk niet opnieuw bestellen.
+*-* Is idd ok, en is idd een beetje droog, maar deeg is te dik. Kippenstukjes zijn wel goed. Too salty, much like this review. Zou waarschijnlijk niet opnieuw bestellen.
 
 *-* Ik denk dat mijn vierde kaassoort karton is. Zou niet opnieuw bij Pizza Espressa bestellen.
 
