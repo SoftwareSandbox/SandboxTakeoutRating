@@ -79,7 +79,8 @@ Rating: 5/10
 
 ### Pizza Riva
 
-Levertijd: 50'
+Levertijd: 60'
+Vriendelijk en hebben op voorhand gebeld om te vragen waar het juist was.
 
 #### Barbeque Chicken
 
