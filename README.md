@@ -76,3 +76,13 @@ Levertijd: Geadverteerd 40', gemeld na bestelling 60', in het echt 60'.
 Prijs: €8 de pizza (average)
 
 Rating: 5/10
+
+### Pizza Riva
+
+Levertijd: 50'
+
+#### Barbeque Chicken
+
+Prijs: €6.50 Small (groot genoeg voor Jooones)
+
+Rating: 7/10
