@@ -41,6 +41,8 @@ Rating: 7/10
 
 Suggestie: eventueel meer Naan bestellen
 
+---
+
 ## Lebanese
 ### Beirut
 
@@ -51,6 +53,41 @@ Al een aantal keren hier besteld, en hoewel het eten zelf zeer lekker is, wordt 
 Prijs: €14
 
 Rating: 6.5/10
+
+---
+
+## Mediteranean
+### Koshary Leuven
+
+Zeer vriendelijke uitbaters.
+
+We hadden moeten na bellen om te vragen waar het eten bleef, en ze excuseerden zich daarvoor. Achteraf bleek dat ze de hummus waren vergeten mee te geven, daarvoor hebben ze nog terug gebeld om zich opnieuw te excuseren en te zeggen dat we er volgende keer een hummus gratis kregen.
+
+Eten zelf was ook lekker, en **ruim** voldoende. Wel veel rijst.
+
+Kebab: een beetje zoals stoofvlees maar dan zonder saus. Kaneel, amandelen en rozijnen in de rijst.
+
+Dulma is ook lekker, en niet te pikant.
+
+Prijs: €14
+
+Rating: 7.5/10
+
+Kabsa: iets kruidigere rijst, yoghurt saus was lekker maar was _broodnodig_ want rijst en kip waren anders veel te droog geweest, kip was wel veel knook en weinig vlees.
+
+SpringRolls waren zeer lekker.
+
+Rating: 6.5/10
+
+Prijs: €13
+
+Koshry: Zeer droog recept, maar wel ok.
+
+Prijs: €11
+
+Rating: 6/10
+
+---
 
 ## Pizza
 ### Dominoes
