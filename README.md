@@ -125,3 +125,16 @@ Vriendelijk en hebben op voorhand gebeld om te vragen waar het juist was.
 Prijs: €6.50 Small (groot genoeg voor Jooones)
 
 Rating: 7/10
+
+### Kingslize pizza
+
+Levertijd: 32'
+Je krijgt een SMS als ze vertrekken met daarbij de voorziene levertijd.
+
+#### Meat Lover
+
+Prijs: €17.90 King ('Net voldoende' voor 2p - Jooones&Tim)
+
+'Waar was de barbequesaus?'
+
+Rating: 7,5/10
