@@ -6,11 +6,11 @@ Sandbox Takeout Rating
 #### Chicken Tikka Masala
 Geen groentjes, lekkere saus, te duur voor wat het is.
 
-Prijs: €14
+Prijs: €14.50
 
-Rating: 6.5/10
+Rating: 7/10
 
-Suggestie: eventueel meer Naan bestellen
+Suggestie: meer Naan bestellen
 
 ### Buddha House
 #### Chicken Tikka Masala
